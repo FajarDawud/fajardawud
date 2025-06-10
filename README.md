@@ -16,7 +16,7 @@ Bringing a unique blend of technical expertise and entrepreneurial mindset, shap
 
 ### 📫 **Connect with Me**
 
-- **LinkedIn**: [Connect on LinkedIn](https://www.linkedin.com/in/fajar-dawud/)
+- **LinkedIn**: [Connect on LinkedIn](https://www.linkedin.com/in/fajar-dawud-5b2b8832b/)
 - **Email**: otherdawudd@gmail.com
 
 ---
